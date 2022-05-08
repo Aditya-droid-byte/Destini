@@ -1,4 +1,4 @@
-https://user-images.githubusercontent.com/69623904/167304916-c6e5afa7-54c9-4da5-acad-b9cbedceeae5.png
+image[https://gfycat.com/powerfulsoggyanemonecrab]
 
 
 # Destini 🤔
